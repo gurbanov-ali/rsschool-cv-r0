@@ -1,7 +1,7 @@
 # Ali Gurbanov
 
 ## Contacnts:
-- Phone: +994514885271
+- Phone: +994506690336
 - Email: gurbanovali@outlook.com
 - GitHub: gurbanov-ali
 
